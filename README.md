@@ -44,4 +44,4 @@ Our aim is to make it quick and easy for you to access a professional, stylish a
 
 2. **Is the payment upfront?** No, the payment isn't upfront. As soon as a client has given us information about themselves, the delivery duration countdown starts. When the client is completely satisfied with his/her result, only then will we accept a payment 😁. Please note that if the payment isn't delievered to us within 12 hours of completion, the portfolio services we provided to you will be **taken down/deleted**.
 
-3. **When will Unifolio start it's operations?** From July 1st till August 1st. Requests for portfolio websites are only acknowledged if sent on Sundays or Wednesdays.
+3. **When will Unifolio start it's operations?** From July 1st till August 1st.
